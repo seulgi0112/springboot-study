@@ -6,6 +6,10 @@
 
 ✔  매주 목요일 9시
 
+✔ 1,2장 블로그 정리 
+
+*https://selgii.tistory.com/35*
+
 ✔ 3장 블로그 정리 
 
 *https://selgii.tistory.com/46*
